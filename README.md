@@ -1,1 +1,0 @@
-# Gruppeeksamen_2022
